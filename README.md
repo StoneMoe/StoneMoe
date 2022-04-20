@@ -5,7 +5,7 @@ open-source is the way how I achieve.
 
 #### AWARDS
 
-- 2020 Most Neet citizen during COVID-19
+- 2020 Most Neet citizen during COVID-19 pandemic
   - Stay home for three months
 - 2021 Most Trusted Colleague
   - ![image](https://user-images.githubusercontent.com/5786577/163976728-7447b351-1390-4d41-9fab-dc310f28f59b.png)
